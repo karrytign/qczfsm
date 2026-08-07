@@ -1,0 +1,519 @@
+<p dir="auto"><strong>2026年08月07日 22时36分09秒(UTC+8)</strong></p>
+
+<hr></hr>
+
+<h2 tabindex="-1" class="heading-element" dir="auto">一、国内时政</h2>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">伊朗发射导弹 特朗普审核停火协议油价波动加剧</h3>
+
+<p dir="auto">南网能源发布8.5亿定增预案 投向AI用PCB扩产等项目。<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/025008.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">中字头股票集体大涨 基建板块掀涨停潮。</h3>
+
+<p dir="auto">恶炒有代价 庄家夺路逃 退市股散户接盘损失惨重<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/284511.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">国产EDA工具渗透率持续提升 半导体全流程自主可控进程不断加速</h3>
+
+<p dir="auto">万科推进债权展期 表示将继续深化战略聚焦核心业务。<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/781530.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">虚拟现实设备产量大增 东莞数据显示同比增长67.9%。</h3>
+
+<p dir="auto">三千点关口A股疯涨 00后入市冲上热搜 有人半日赚五十二万。<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/580651.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">7月国内冰箱产量同比增长12% 白电行业出口内销双回暖</h3>
+
+<p dir="auto">伊朗发射导弹 特朗普审核停火协议油价波动加剧<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/390662.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">金融股集体护盘 沪指守住3100点支撑位。</h3>
+
+<p dir="auto">特斯拉股价大涨 带动A股供应链个股集体跟涨<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/631355.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">碳交易市场覆盖行业扩容 相关碳管理服务企业受益</h3>
+
+<p dir="auto">新冠疫苗概念异动 多家药企股价大涨回应新毒株研发。<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/937611.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">南网能源发布8.5亿定增预案 投向AI用PCB扩产等项目。</h3>
+
+<p dir="auto">消费电子PCB板需求回暖 AI服务器相关高附加值产品占比提升<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/046818.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">港股市场高开高走 恒生指数涨超1.2%收复25000点</h3>
+
+<p dir="auto">MCU芯片价格逐步企稳 工业控制领域需求保持旺盛<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/218802.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">MCP 就像 USB-C 一样，可以让不同设备能够通过相同的接口连接在一起。</h3>
+
+<p dir="auto">南网能源发布8.5亿定增预案 投向AI用PCB扩产等项目<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/385248.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">两市成交额不足8000亿 观望情绪升温短期震荡为主。</h3>
+
+<p dir="auto">大普微申请停牌核查 预计停牌时间不超过三个交易日<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/035647.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">通威与南京纽源签署战略合作 共同推进绿色能源发展</h3>
+
+<p dir="auto">券商股午后跳水 此前领涨的中金公司翻绿收跌<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/667673.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">第三十届生活用纸高峰论坛召开 太阳纸业担任轮值主席单位</h3>
+
+<p dir="auto">通策医疗跌停 实控人吕建明被留置调查消息引发抛售<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/675755.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">游戏版号下发 本月86款国产游戏获版号板块情绪回暖</h3>
+
+<p dir="auto">资金狂减热门ETF 年内最牛ETF榜单出炉半导体霸榜前三<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/375273.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">地产板块全线爆发 万科碧桂园集体涨停</h3>
+
+<p dir="auto">行云科技股价下跌2.16% 午盘放量跳水翻绿<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/013194.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">光芯片国产替代窗口期到来 国内厂商实现群体性突破。</h3>
+
+<p dir="auto">六月A股行情怎么走 机构认为结构性机会大于风险。<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/708149.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">伯克希尔哈撒韦股价创八个月新高 巴菲特持仓组合盈利表现持续超预期</h3>
+
+<p dir="auto">长江存储办理辅导备案 拟A股IPO冲击存储第一股。<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/630384.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">湖南省工程机械租赁协会高机分会正式成立 规范行业发展。</h3>
+
+<p dir="auto">下周解禁市值超560亿元 四只个股解禁市值超百亿<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/648028.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">中字头股票集体大涨 基建板块掀涨停潮。</h3>
+
+<p dir="auto">全国一体化算力网加快建设 赋能数字经济高质量发展<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/460178.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">社保基金加仓科创板 偏好硬科技龙头持仓比例提升</h3>
+
+<p dir="auto">爱美客发布新品嗨体 针对颈纹新产品打开增长空间。<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/508597.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">两市融资余额增加32亿元 连续三日上升显示资金情绪转好</h3>
+
+<p dir="auto">半导体板块冲高回落 早盘涨超3%午后转跌。<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/251809.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">元宇宙线下体验场景落地数量快速增长 相关硬件配套企业迎来事件催化</h3>
+
+<p dir="auto">地方十五五规划密集落地 投早投小投硬科技成共识。<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/448973.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">AI算力霸榜 25只基金近一年回报超300%</h3>
+
+<p dir="auto">牧原股份四月销售大涨 生猪销量同比增长超30%股价上涨。<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/257309.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">电子气体需求激增 芯片血液频现供应缺口企业加速扩产。</h3>
+
+<p dir="auto">长江存储办理辅导备案 拟A股IPO冲击存储第一股<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/208348.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">六月A股行情怎么走 机构认为结构性机会大于风险</h3>
+
+<p dir="auto">老庄后撤 新股慎起 次新股炒作降温 提示追高风险。<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/345606.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">通威与南京纽源签署战略合作 共同推进绿色能源发展</h3>
+
+<p dir="auto">原拆原建政策落地 老房改造需求爆发引爆地产股<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/751724.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">银行股集体调整 多家股份行跌超1%市场担忧息差收窄</h3>
+
+<p dir="auto">阿里巴巴分拆菜鸟上市 董事会批准上市计划股价大涨<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/443050.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">人弃我取 慧眼识珠 低估值银行板块获机构加仓。</h3>
+
+<p dir="auto">猪肉价格连续上涨 猪企股价反弹机构认为拐点已至。<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/514530.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">人形机器人量产车型三季度集中发布 核心零部件企业率先受益</h3>
+
+<p dir="auto">宝丰能源跌3.69% 西部证券十八天前刚给予增持评级<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/461649.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">巴奴火锅就食品安全问题致歉 正分批联系顾客安排补偿</h3>
+
+<p dir="auto">国产大飞机C919新增百架批量订单 产业链上游零部件企业订单快速增长<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/833519.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">伊朗发射导弹 特朗普审核停火协议油价波动加剧</h3>
+
+<p dir="auto">电子气体需求激增 芯片血液频现供应缺口企业加速扩产。<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/530197.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">华为概念股集体上涨 多家公司官宣供货华为供应链。</h3>
+
+<p dir="auto">三千点关口A股疯涨 00后入市冲上热搜 有人半日赚五十二万。<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/630056.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">中国中免股价反弹 海南免税五一销售超预期刺激情绪回暖。</h3>
+
+<p dir="auto">智能摄像头家用场景普及 安防消费类产品需求增长<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/942446.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">地方十五五规划密集落地 投早投小投硬科技成共识。</h3>
+
+<p dir="auto">一季报披露完毕 新势力车企开启体系能力之争。<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/898883.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">同仁堂股价涨停 中药配方颗粒试点结束迎来发展新机遇</h3>
+
+<p dir="auto">创新医疗抽屉协议曝光 连续七年亏损跌停跌停封板。<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/412545.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">阿里巴巴分拆菜鸟上市 董事会批准上市计划股价大涨</h3>
+
+<p dir="auto">行云科技股价下跌2.16% 午盘放量跳水翻绿<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/369353.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">可转债打新收益回升 本月三只新股上市平均盈利超300元</h3>
+
+<p dir="auto">氟化工行业高端含氟新材料需求增长 相关企业业绩弹性凸显<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/546426.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">可转债打新收益回升 本月三只新股上市平均盈利超300元</h3>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">互联网板块反弹 监管政策转向利好龙头估值修复</h3>
+
+<p dir="auto">贵州茅台股价突破2000元 机构称估值回归合理区间。<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/333019.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">中金公司披露合并东兴证券信达证券细节 合并后营收跻身第三</h3>
+
+<p dir="auto">全球AI产业投资热度不减 具备落地能力标的获资金青睐<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/332674.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">保险板块异动拉升 中国人寿涨超5%带动指数翻红。</h3>
+
+<p dir="auto">大盘重现转机 机构称赚钱窗口将延续到三季度<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/901067.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">全国一体化算力网加快建设 赋能数字经济高质量发展</h3>
+
+<p dir="auto">台积电称同类技术已用十年 回应黄仁勋对华为韬定律评价<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/083526.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">沪指失守3000点 市场情绪降至近一年低点。</h3>
+
+<p dir="auto">社保基金加仓科创板 偏好硬科技龙头持仓比例提升<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/256674.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">创新医疗抽屉协议曝光 连续七年亏损跌停跌停封板。</h3>
+
+<p dir="auto">中信证券160亿布局全球 打响券商行业竞争升级第一枪。<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/867067.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">农业ETF五月下跌13% 霍尔木兹叙事退潮资金出逃。</h3>
+
+<p dir="auto">金龙鱼一季度利润大涨超100% 股价涨超5%回应业绩超预期<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/017571.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">全球AI手机出货量增长 端侧大模型成为核心卖点</h3>
+
+<p dir="auto">半导体ETF份额大增 资金借道ETF布局硬科技赛道<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/821504.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">特朗普任期内美股年化回报率跑赢1890年后多数美国总统任期</h3>
+
+<p dir="auto">美联储维持利率不变 外资抢筹A股三大指数高开高走<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/866618.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">新冠药物概念上涨 新毒株出现企业加速研发新品</h3>
+
+<p dir="auto">可穿戴智能设备上半年零售额增速超一倍 消费电子创新品类拉动增长<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/379224.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">光伏玻璃库存去化完成 下游组件企业开工率持续提升</h3>
+
+<p dir="auto">五部门联合发文健全金融机构治理 严把机构股东准入关口<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/764194.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">多方偷袭得逞 盘弱后市堪忧 成交量低迷难以支撑反弹</h3>
+
+<p dir="auto">氢能燃料电池汽车上半年销量同比增长150% 商业化应用提速<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/746812.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">虚拟现实设备产量大增 东莞数据显示同比增长67.9%</h3>
+
+<p dir="auto">AI医疗影像产品获批数量增加 医疗信息化企业迎来新增长曲线<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/905190.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">空方狂轰滥炸 多头竭力强撑 退市股多空对决白热化</h3>
+
+<p dir="auto">伊朗发射导弹 特朗普审核停火协议油价波动加剧<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/303128.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">可转债打新收益回升 本月三只新股上市平均盈利超300元</h3>
+
+<p dir="auto">多方偷袭得逞 盘弱后市堪忧 成交量低迷难以支撑反弹。<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/978219.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">国企改革概念上涨 新一轮改革方案临近预期升温</h3>
+
+<p dir="auto">佛山照明启动SAP升级项目 推进业务数字化转型<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/052226.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">LG电子股价大涨24% 联合谷歌推出汽车创新技术获市场认可</h3>
+
+<p dir="auto">湖南省工程机械租赁协会高机分会正式成立 规范行业发展。<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/712838.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">第三十届生活用纸高峰论坛召开 太阳纸业担任轮值主席单位</h3>
+
+<p dir="auto">工信部明确：炼铁炼钢产能置换比例不低于1.5:1。<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/746289.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">通威与南京纽源签署战略合作 共同推进绿色能源发展</h3>
+
+<p dir="auto">高管减持潮来袭 一周内23家公司董监高套现离场<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/743380.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">国产数据库在核心系统替代加速 头部厂商市场份额提升</h3>
+
+<p dir="auto">首批科创50ETF期权即将上市 机构称利好长期流动性<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/347880.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">特斯拉股价大涨 带动A股供应链个股集体跟涨</h3>
+
+<p dir="auto">电力板块上涨 高温天气提前到来用电需求大增。<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/796183.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">五穷六绝七翻身？五月收官沪指小幅收跌0.12%</h3>
+
+<p dir="auto">供销社概念异动拉升 多只个股涨停封板<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/500406.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">元宇宙线下体验场景落地数量快速增长 相关硬件配套企业迎来事件催化</h3>
+
+<p dir="auto">大普微申请停牌核查 预计停牌时间不超过三个交易日<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/649876.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">资源类ETF遭遇回撤 石化化工ETF单月下跌超14%。</h3>
+
+<p dir="auto">老庄后撤 新股慎起 次新股炒作降温 提示追高风险。<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/602424.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">金龙鱼一季度利润大涨超100% 股价涨超5%回应业绩超预期。</h3>
+
+<p dir="auto">金龙鱼一季度利润大涨超100% 股价涨超5%回应业绩超预期<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/958156.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">吉利汽车发布极星新车型 订单量破万带动股价上涨。</h3>
+
+<p dir="auto">保险板块异动拉升 中国人寿涨超5%带动指数翻红。<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/951646.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">游戏版号下发 本月86款国产游戏获版号板块情绪回暖</h3>
+
+<p dir="auto">AI大模型在工业制造场景落地案例快速增加 工业软件企业订单增长<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/087682.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">龙头雄起 后市仍可为 机构看好新能源赛道行情延续。</h3>
+
+<p dir="auto">外资机构持续加仓A股 全球资本配置中国资产趋势明确<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/764520.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">国产EDA工具渗透率持续提升 半导体全流程自主可控进程不断加速</h3>
+
+<p dir="auto">全球消费电子需求回暖 手机与PC出货量环比改善<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/262260.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">泡泡玛特段永平举牌后大涨 段永平单日浮盈超10亿港元</h3>
+
+<p dir="auto">汽车无人驾驶概念大涨 多地开放无人驾驶落地测试。<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/747279.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">伊朗发射导弹 特朗普审核停火协议油价波动加剧</h3>
+
+<p dir="auto">环保板块上涨 碳交易市场扩容政策即将出台。<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/337238.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">老庄后撤 新股慎起 次新股炒作降温 提示追高风险。</h3>
+
+<p dir="auto">六月券商金股出炉 机构提示规避涨幅过高领域。<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/303085.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">沪指站稳3300点 赛道股集体反弹带动情绪升温</h3>
+
+<p dir="auto">*ST创兴收到上交所退市决定 预计最后交易日为6月29日。<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/915906.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">蔚来汽车发布新品牌 主打十万级市场股价大涨超3%。</h3>
+
+<p dir="auto">供销社概念尾盘跳水 短线资金获利了结出逃<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/716161.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">今年618大促 AI成最大卖点 全平台AI产品销量翻倍。</h3>
+
+<p dir="auto">个护小家电新品类快速增长 美容与健康护理需求释放<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/344042.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">美国迎来娃娃炒股实验 千万新生儿一出生就买ETF。</h3>
+
+<p dir="auto">中船系集体拉升 中船科技涨停带动军工板块上涨。<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/263778.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">血制品行业进入深度寻底 多家企业降价抢份额格局生变。</h3>
+
+<p dir="auto">台积电称同类技术已用十年 回应黄仁勋对华为韬定律评价<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/988506.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">比亚迪发布腾势N9闪充版 起售价40.98万元订单火爆</h3>
+
+<p dir="auto">工信部明确：炼铁炼钢产能置换比例不低于1.5:1。<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/564387.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">全球新能源汽车销量同比增长20% 中国品牌出海加速</h3>
+
+<p dir="auto">多方偷袭得逞 盘弱后市堪忧 成交量低迷难以支撑反弹。<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/790128.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">六月金股名单出炉 机构重点推荐消费与高端制造方向</h3>
+
+<p dir="auto">可转债打新收益回升 本月三只新股上市平均盈利超300元<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/621753.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">蓝色起源火箭发射台爆炸 影响商业航天板块情绪。</h3>
+
+<p dir="auto">六月金股名单出炉 机构重点推荐消费与高端制造方向<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/544804.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">贝莱德上调中国股票评级至超配 内房股券商股集体大涨。</h3>
+
+<p dir="auto">城市更新十五五规划出炉 预计带动十万亿级投资。<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/431408.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">贵州茅台股价突破2000元 机构称估值回归合理区间。</h3>
+
+<p dir="auto">多方偷袭得逞 盘弱后市堪忧 成交量低迷难以支撑反弹<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/370931.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">风电叶片大型化趋势明确 头部企业市场份额进一步集中</h3>
+
+<p dir="auto">小鹏汽车G9改款上市 订单量破万带动美股ADR上涨<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/858919.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">保险板块异动拉升 中国人寿涨超5%带动指数翻红。</h3>
+
+<p dir="auto">南网能源发布8.5亿定增预案 投向AI用PCB扩产等项目。<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/371813.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">工业互联网平台接入设备数量突破千万 制造端数字化转型提速</h3>
+
+<p dir="auto">倍轻松股价跌破发行价 创上市以来新低市值仅剩不足20亿<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/457035.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">美国迎来娃娃炒股实验 千万新生儿一出生就买ETF。</h3>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">半导体国家队密集减持 一日三龙头遭套现市场影响几何。</h3>
+
+<p dir="auto">物业管理板块上涨 房企资产重组利好物业板块估值修复<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/316138.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">光芯片国产替代窗口期到来 国内厂商实现群体性突破。</h3>
+
+<p dir="auto">腾讯控股回购股份 单日回购金额超10亿港元提振市场信心<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/596390.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">全球铜箔需求增长 锂电与电子电路双赛道支撑</h3>
+
+<p dir="auto">沪指站稳3300点 赛道股集体反弹带动情绪升温<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/575109.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">华为概念股集体上涨 多家公司官宣供货华为供应链。</h3>
+
+<p dir="auto">新冠疫苗概念异动 多家药企股价大涨回应新毒株研发。<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/154958.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">中际旭创辟谣网传董事长演讲：内容虚假将追究法律责任。</h3>
+
+<p dir="auto">新冠疫苗概念异动 多家药企股价大涨回应新毒株研发。<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/344167.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">今年618大促 AI成最大卖点 全平台AI产品销量翻倍</h3>
+
+<p dir="auto">多地出台房地产消费支持政策 优质头部房企融资环境持续边际改善<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/331382.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">阿里巴巴分拆菜鸟上市 董事会批准上市计划股价大涨</h3>
+
+<p dir="auto">通策医疗跌停 实控人吕建明被留置调查消息引发抛售。<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/660976.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">南网能源发布8.5亿定增预案 投向AI用PCB扩产等项目。</h3>
+
+<p dir="auto">五月A股收官 科创50全月大跌超5%创年内最大月跌幅<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/006101.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">特斯拉股价大涨 带动A股供应链个股集体跟涨</h3>
+
+<p dir="auto">资金狂减热门ETF 年内最牛ETF榜单出炉半导体霸榜前三<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/797027.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">龙头雄起 后市仍可为 机构看好新能源赛道行情延续。</h3>
+
+<p dir="auto">资源类ETF遭遇回撤 石化化工ETF单月下跌超14%。<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/838462.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">血制品行业进入深度寻底 多家企业降价抢份额格局生变。</h3>
+
+<p dir="auto">两市缩量震荡 逾三千股飘绿 资金抱团AI核心标的<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/977050.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">地方十五五规划密集落地 投早投小投硬科技成共识</h3>
+
+<p dir="auto">高管减持潮来袭 一周内23家公司董监高套现离场。<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/005005.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">大普微斩获二十厘米涨停 收盘价报816元刷新上市新高。</h3>
+
+<p dir="auto">高管减持潮来袭 一周内23家公司董监高套现离场<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/595225.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">工业机器人上半年产量同比增长35% 智能制造赛道景气度持续上行</h3>
+
+<p dir="auto">光明肉业推进业务整合 构建一体化全产业链运营体系<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/193454.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">同仁堂股价涨停 中药配方颗粒试点结束迎来发展新机遇。</h3>
+
+<p dir="auto">汽车无人驾驶概念大涨 多地开放无人驾驶落地测试。<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/325242.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">庄家为谁投赌局 *ST庄股退市前上演最后疯狂。</h3>
+
+<p dir="auto">首批REITs分红落地 平均分红比例超30%获投资者认可<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/413196.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">风电公开招标量同比增长70% 海上风电项目集中开工带动产业链需求</h3>
+
+<p dir="auto">段永平斥资百亿举牌泡泡玛特 长期看好潮玩赛道。<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/206086.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">百济神州PD-1单抗获批新适应症 股价大涨回应利好。</h3>
+
+<p dir="auto">美团红杉腾讯集体押注 宇树科技启动IPO赢家浮出水面。<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/521791.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">科创半导体ETF涨幅超24% 连续两个月霸屏ETF涨幅榜。</h3>
+
+<p dir="auto">*ST创兴收到上交所退市决定 预计最后交易日为6月29日。<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/851304.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">信达生物与辉瑞达成10.5亿美元合作 股价大涨10%</h3>
+
+<p dir="auto">南向资金净流入超百亿 抄底港股互联网龙头。<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/077226.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">龙头一声吼 股指上下抖 券商龙头异动带动大盘波动。</h3>
+
+<p dir="auto">半导体ETF份额大增 资金借道ETF布局硬科技赛道<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/007969.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">比亚迪四月销量突破30万辆 再创自主品牌销量新高。</h3>
+
+<p dir="auto">7月国内光伏组件出口量同比增长15% 海外新兴市场需求快速增长<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/352261.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">供销社概念异动拉升 多只个股涨停封板</h3>
+
+<p dir="auto">光伏板块触底反弹 阳光电源涨超4%领涨赛道。<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/366802.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">休闲零食企业线上渠道营收占比突破50% 新营销模式拉动增长</h3>
+
+<p dir="auto">上半年轻工业总营收达11.2万亿元 高能效家电与可穿戴设备增速领跑消费市场<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/572280.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">半导体板块冲高回落 早盘涨超3%午后转跌。</h3>
+
+<p dir="auto">通威与南京纽源签署战略合作 共同推进绿色能源发展。<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/221885.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">城市更新十五五规划出炉 预计带动十万亿级投资。</h3>
+
+<p dir="auto">猪肉价格连续上涨 猪企股价反弹机构认为拐点已至<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/733760.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">汽车玻璃功能升级 天幕与调光玻璃渗透率提升</h3>
+
+<p dir="auto">五月A股收官 科创50全月大跌超5%创年内最大月跌幅。<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/889471.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">4家A股公司撤销退市风险警示 即将摘掉ST帽子</h3>
+
+<p dir="auto">牧原股份四月销售大涨 生猪销量同比增长超30%股价上涨。<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/551778.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">行云科技股价下跌2.16% 午盘放量跳水翻绿</h3>
+
+<p dir="auto">消费板块全线回暖 白酒食品饮料集体大涨<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/787997.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">存储行业热度升温 龙头争相上市股东却密集套现离场</h3>
+
+<p dir="auto">杰富瑞下调富途控股目标价 从224美元降至170.5美元。<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/041778.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">金龙鱼一季度利润大涨超100% 股价涨超5%回应业绩超预期。</h3>
+
+<p dir="auto">A股极致分化 硬更硬软愈软马太效应持续发酵。<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/754303.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">腾讯控股回购股份 单日回购金额超10亿港元提振市场信心</h3>
+
+<p dir="auto">一季报披露完毕 新势力车企开启体系能力之争。<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/203253.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">龙头一声吼 股指上下抖 券商龙头异动带动大盘波动。</h3>
+
+<p dir="auto">全球镍价维持区间波动 不锈钢与新能源需求支撑<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/853974.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">国企改革概念上涨 新一轮改革方案临近预期升温</h3>
+
+<p dir="auto">北京君正向港交所重新递表 加速存储国产替代进程。<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/536783.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">地方十五五规划密集落地 投早投小投硬科技成共识。</h3>
+
+<p dir="auto">光芯片国产替代窗口期到来 国内厂商实现群体性突破<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/827863.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">英伟达HBM存储订单调整传闻引发板块波动 产业链调研显示实际需求仍维持高位</h3>
+
+<p dir="auto">光明肉业推进业务整合 构建一体化全产业链运营体系<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/442728.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">科创50指数单日大跌5% 双创指数周末集体跳水</h3>
+
+<p dir="auto">空方狂轰滥炸 多头竭力强撑 退市股多空对决白热化<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/032389.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">万科推进债权展期 表示将继续深化战略聚焦核心业务</h3>
+
+<p dir="auto">券商发债活跃度明显提升 头部券商年内发债超千亿<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/959320.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">伊朗发射导弹 特朗普审核停火协议油价波动加剧</h3>
+
+<p dir="auto">全球航空出行需求复苏 航司盈利水平持续修复<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/745131.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">万科推进债权展期 表示将继续深化战略聚焦核心业务。</h3>
+
+<p dir="auto">供销社概念异动拉升 多只个股涨停封板<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/403252.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">智能摄像头家用场景普及 安防消费类产品需求增长</h3>
+
+<p dir="auto">贝莱德上调中国股票评级至超配 内房股券商股集体大涨。<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/638274.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">人弃我取 慧眼识珠 低估值银行板块获机构加仓。</h3>
+
+<p dir="auto">新冠疫苗概念异动 多家药企股价大涨回应新毒株研发。<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/281777.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">阿里巴巴分拆菜鸟上市 董事会批准上市计划股价大涨</h3>
+
+<p dir="auto">华为产业链订单爆发 多家配套厂商股价大涨回应<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/089345.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">美的集团高管增持 副总裁增持10万股彰显对公司信心。</h3>
+
+<p dir="auto">游资炒作妖股 五天四板合肥城建澄清与长鑫科技无关。<br><br> | 来源：<code>http://www.blog.uruvq.cn/Article/details/981146.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">科创50指数单日大跌5% 双创指数周末集体跳水</h3>
